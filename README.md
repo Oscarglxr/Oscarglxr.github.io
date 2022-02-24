@@ -1,4 +1,4 @@
-Hola, bienvenido a mi página
+Hola, bienvenido a mi blog personal.
 
 
 
