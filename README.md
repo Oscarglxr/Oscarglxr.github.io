@@ -13,10 +13,9 @@ Estas son unas de mis mejores obras, destacan las líneas finas y las sombras pr
 ![IMG_4359](https://user-images.githubusercontent.com/98052083/155466933-42be8ace-2f9a-47e0-949c-6859cfcbc746.jpg)
 
 
-Recuerdo la primera vez que utilicé una máquina de tatuaje, me daba intriga como se usaba, y no tenía una idea que me dedicaría a esto de manera formal.
+Recuerdo la primera vez que utilicé una máquina de tatuaje, me daba intriga como se usaba, y no tenía una idea que me dedicaría a esto de manera formalmente.
 
+![IMG_4370](https://user-images.githubusercontent.com/98052083/155472503-f7aecbc1-7cf2-4e2d-9705-2a79177abf04.JPG)
 
-
-https://user-images.githubusercontent.com/98052083/155471711-8f1058b0-226b-4a66-9d40-229f0098d892.MOV
 
 
